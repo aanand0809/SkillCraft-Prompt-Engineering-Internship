@@ -90,7 +90,7 @@ I sincerely thank **SkillCraft Technology** for providing this internship opport
 
 ## 📬 Connect With Me
 
-**LinkedIn:** *(Add your LinkedIn profile link here)*
+**LinkedIn:** *(https://www.linkedin.com/in/anand-kumar-691678362?utm_source=share_via&utm_content=profile&utm_medium=member_android)*
 
 ---
 
